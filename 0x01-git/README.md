@@ -1,1 +1,1 @@
-today is a dood day
+Today is a good day
